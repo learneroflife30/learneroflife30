@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Divyanshu
-- 👀 I’m interested in Sports, IT Technology and management.
+- 👀 I’m interested in Sports, Software and Technology, Scrum, Agile and Project management.
 - 📫 You can reachout to me on my Linkedin - https://www.linkedin.com/in/divyanshusharma9/
