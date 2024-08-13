@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Divyanshu
-- 👀 I’m interested in Sports, Software and Technology, Scrum, Agile and Project management.
+- 👀 I’m interested in Software and Technology, Test Automation, Computer Science engineering, Scrum, Agile and Project management.
 - 📫 You can reachout to me on my Linkedin - https://www.linkedin.com/in/divyanshusharma9/
